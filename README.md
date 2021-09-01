@@ -21,7 +21,7 @@ That is it
 ### What will you do in the future?
 You know sometimes in your work they tell you to go with casual clothing? - If you see a smol man in the streets that wears some sneakers that is probably me walking around as the sketchers man 😎
 
-Sides apart from that you would see me going to Nintendo(c Headquarters
+Sides apart from that you would see me going to Nintendo(c) Headquarters
 
 ### How may I speak to you?
 That is real hard my boy, if you want to talk with me you should contact me on Discord vía Pogamepayer#3492 or if you are very lucky you can contact me in any other social networks (Including my personal facebook)
