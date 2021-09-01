@@ -27,4 +27,5 @@ Sides apart from that you would see me going to Nintendo(c Headquarters
 That is real hard my boy, if you want to talk with me you should contact me on Discord vía Pogamepayer#3492 or if you are very lucky you can contact me in any other social networks (Including my personal facebook)
 
 My best Repo
+SimpleCalculator with score:
 [![CodeFactor](https://www.codefactor.io/repository/github/minecon099/simplecalculator/badge)](https://www.codefactor.io/repository/github/minecon099/simplecalculator)
